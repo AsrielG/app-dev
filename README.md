@@ -15,6 +15,7 @@ Despite everything Iruma try to fit and best to hide his secret ~~cause demons e
 
 ## Main Characters
 | Character | Description | Best trait |
+|-----------|-------------|------------|
 | **Suzuki Iruma** | A kind and hardworking boy who is now livin in the demon world | Pure hearted kid who can say no |
 | **Asmodeus Alice** | a demon he accidentaly beat on a fight and now one of his best friend | Loyalty towards Iruma |
 | **Valac Clara** | a playful and energitic demon who is friend with iruma and alice | innocent and cheerful |
@@ -23,9 +24,9 @@ Despite everything Iruma try to fit and best to hide his secret ~~cause demons e
 ---
 
 ## why i like it
--[yes] funny and wholsome
--[yes] great charater development
--[yes ~~and its taking too long~~] waiting for next season
+- [yes] funny and wholsome
+- [yes] great charater development
+- [yes ~~and its taking too long~~] waiting for next season
 
 ---
 
